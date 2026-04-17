@@ -43,7 +43,7 @@ We provide high-authority digital assets tailored for developers, marketers, and
 ## 🤝 Connect with our Executive Team
 For bulk inquiries, wholesale pricing, or technical collaboration:
 
-- **🌐 Website:** [buypvavcc.com](https://buypvavcc.com)
+- **🌐 Website:** [buypvavcc.com](https://t.me/BuyPvaVCC)
 - **📩 Support:** [buypvavcc@gmail.com](mailto:buypvavcc@gmail.com)
 - **📲 Telegram:** [@BuyPvaVCC](https://t.me/BuyPvaVCC)
 
